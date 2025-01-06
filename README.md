@@ -1,4 +1,5 @@
 # 👋 Hi there, I'm Michaela!
+![circle_headshot](https://github.com/user-attachments/assets/abf7bd44-ce50-41cd-836e-ca4f06cb1f3e)
 
 ## 🌟 Welcome to my GitHub Profile!
 
